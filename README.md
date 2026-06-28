@@ -9,3 +9,7 @@
 ## Filosofía del proyecto
 Como dice el meme: **"Ustedes contra mí solo"**. 
 Este proyecto es una muestra de lo que un solo desarrollador puede lograr. ¡Disfruta la experimentación, pero hazlo con responsabilidad!
+
+
+
+Gloria a Dios❤️
