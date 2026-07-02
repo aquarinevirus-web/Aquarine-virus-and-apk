@@ -7,9 +7,7 @@
 * 😄 Pronombres: él/su
 * 📬 Cómo contactarme: no puedes
 * 🙏 Gloria a Dios
-
-
-
-
-*     PAPA CERDITO!!
+*  PAPA CERDITO!!
+*  🩹💝
+*  #tubers93❤️🔥
  
